@@ -1,0 +1,1 @@
+Put the blue cheese, soured cream and mayonnaise in a food processor and blitz until smooth. Stir through the celery and season to taste. Cook the sausages following pack instructions. Split the hot dog buns and fill each with a sausage, the blue cheese sauce and a drizzle of buffalo hot sauce. Top with the crispy fried onions.
